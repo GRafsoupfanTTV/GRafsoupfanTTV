@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @GRafsoupfanTTV
+- 👀 I’m interested in occupational therapy 
+- 🌱 I’m currently learning how to stream 
+- 💞️ I’m looking to collaborate on twitch 
+- 📫 How to reach me twitch 
